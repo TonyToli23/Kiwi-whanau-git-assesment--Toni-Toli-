@@ -7,3 +7,7 @@
 
 ## Family Traditions
 - Weekend BBQs watching the All Blacks
+-And Ufc fights
+
+##Children after Grandparents
+-Daughter: Sarah "Ufc fan" Williams (lives in Queenstown, Israel Adesanya supporter)
